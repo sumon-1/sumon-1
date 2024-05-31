@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sumon-1
+- 👋 Hi, I’m Suman Tharu
 - 👀 I’m interested in designing
 - 🌱 I’m currently learning adobe photpshop
 - 📫 How to reach me rajsum46@gmail.com
